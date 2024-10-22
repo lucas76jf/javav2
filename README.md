@@ -1,0 +1,1 @@
+uma versão melhor otimizada
